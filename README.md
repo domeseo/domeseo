@@ -1,5 +1,5 @@
 
-# Domenico Puzone Technical SEO & AI Ops Specialist @ Lottoland
+# Domenico Puzone Technical SEO & AI Automation
 
 I’m *Domenico*, a passionate and versatile professional with a strong background in *SEO, AI Automation, and marketing*. Over the years, I’ve had the privilege of working across diverse industries, including iGaming and marketing agencies, where I’ve developed expertise in *Technical SEO, strategic planning, and team leadership*. As an early adopter of technology and a lifelong learner, I’m always exploring new ways to innovate and stay ahead in my field.
 
